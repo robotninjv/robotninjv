@@ -42,8 +42,4 @@ Thė Hūmån Ėxpërîęnçē Collective TH3coll
 
 ---
 
-    *Made in Japan.🇯🇵  *Born
-
-
- in the USA.*  
-*Make ARt.*
+    *Made in Japan.🇯🇵  *Born in the USA.🇺🇸*  *Make ARt.*
